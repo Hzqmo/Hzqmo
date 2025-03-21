@@ -9,7 +9,7 @@
 - 🏛️ **Law & Commerce Graduate** from Management & Science University (MSU)
 - 👨‍💻 Passionate about **AI and Data Science**
 - 🎮 Gamer | FPS & Action Enthusiast (**Elden Ring, Ninja Gaiden, Valorant, Dota**)
-- 🚗 **Car Enthusiast** | Dreaming of a **Audi TTs**
+- 🚗 **Car Enthusiast** | Dreaming of an **Audi TTs**
 - 🌍 Future **Andalusia traveler** to explore Islamic history
 
 ---
